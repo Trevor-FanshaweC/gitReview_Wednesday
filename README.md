@@ -1,2 +1,2 @@
-# My Awesome Chainsaw Juggling Team
+# My Awesome Flaming Chainsaw Juggling Team
 
